@@ -1,7 +1,8 @@
 Hi I'm Desenrrollado, but you can see that I think? Unless my username isn't showing up.
 
 
-![Screenshot_20230202-042419](https://github.com/Desenrrollado/Desenrrollado/assets/92115460/16f63687-1df2-4555-a5ec-b691aefae3e0)
+![Screenshot_20230817-123726](https://github.com/Desenrrollado/Desenrrollado/assets/92115460/3fcca6a4-adf9-4eb0-8ac8-ae482c305863)
+
 
 
 I'm currently on Github to follow/explore a variety of different software, plugins, forks, mods, and even optimizations.
