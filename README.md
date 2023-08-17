@@ -13,4 +13,4 @@ I would love to be able to make Minecraft mods one day or rom hacks with for smw
 
 As well as love to be able to help out or collaborate with plenty of people. 
 
-I'm able to do test programs or games for issues/bugs. Currently on a 64bit version of windows 10. So if there's anything I can do feel free to ask. Especially if you make dope indie games. 
+I'm able to test programs or games for issues/bugs. Currently on a 64bit version of windows 10. So if there's anything I can do feel free to ask. Especially if you make dope indie games. 
