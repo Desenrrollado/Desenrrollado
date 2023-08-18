@@ -11,7 +11,7 @@ I'm currently on Github to follow/explore a variety of different software, plugi
 
 I unfortunately don't code and lack the proper experience. Most of what little Python I learned is gone. 
 
-I would love to be able to make Minecraft mods one day or rom hacks with for smw one day.
+I would love to be able to make Minecraft mods one day or rom hacks for Smw one day.
 
 As well as love to be able to help out or collaborate with plenty of people. 
 
