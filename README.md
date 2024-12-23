@@ -1,6 +1,6 @@
 Hi I'm Desenrrollado. (Des-en-roll-ado or Dezen-roe-yahh-doe) Shorten it to Des if that makes it easy. 
 
-Currently I'm on here to occastionally follow and snoop through various things that catch my eye. Be it cool software, plugins, mods, optimizations, forks you name it. As long as it's cool and catches my eye. I'll be following it.
+Currently I'm on here to occastionally follow and snoop through various things that catch my eye. Be it cool software, plugins, mods, optimizations, forks, you name it. As long as it's cool and catches my eye. I'll be following it.
 
 No I don't code. It's maybe a result of it being pushed on me too much from a young age. I've tried multiple times even with what little Python I did. It just isn't for me. Just flew out the window. I think it's cool and neat that others can do it. Major props to you all. 
 
